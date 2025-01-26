@@ -1,4 +1,4 @@
-# Gali Disawar Satta King Chart Result January 2025 
+# Gali Disawar Satta King Chart Result January 2025    
 
 ## - Telegram  Group 👉👉 [Join Now](https://t.me/Hindiupdate201) 👈
 
